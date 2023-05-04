@@ -6,8 +6,6 @@
 - 🙆🏽 Sou mulher, moro na zona norte do Rio de Janeiro. Tenho +30. 
 - ⚡ Curiosidade: Sou formada em eletrotécnica e me encontrei na área da tecnologia e educação em 2021. 
 
-<img src=" " width="40" height="40"/>
-
 
 ## Contatos:
 
